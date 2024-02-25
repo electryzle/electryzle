@@ -8,6 +8,8 @@ Heyyy ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-
 i code for fun 🫧
 -----------------
 
+<img align ="right" alt="gif" width="400" src="https://github.com/electryzle/electryzle/blob/main/angry-2498_256.gif">
+
 this is where i dump all of my small projects.. hi (˵ •̀ ᴗ - ˵ ) ✧ ༘⋆🌷🫧💭₊˚ෆ
 
 *   🌍  I'm based in Earth 🌷🐱🐾💗
